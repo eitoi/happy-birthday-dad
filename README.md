@@ -1,5 +1,5 @@
 
-copy this and paste it in a google doc.
+copy this and paste it in a google doc then print the document.
 
 ___________________________________________________
 |               coupon                             |
